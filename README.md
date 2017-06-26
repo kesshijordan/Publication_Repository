@@ -1,1 +1,1 @@
-# sharing methods, and interesting science
+# sharing methods and interesting science
